@@ -94,7 +94,7 @@ Before long, Dad spoke up "Good job Jimmy, you wrote Pandle correctly."
 
 "Alright!"
 
-After his reply, Jimmy jumped off of Dad's and ran towards the door of this room.
+After his reply, Jimmy jumped off of Dad and ran towards the door of this room.
 
 Dad, too, got up from where he was and walked over to the door and closed it before returning to me, and moved me to another place within the room.
 
@@ -102,7 +102,7 @@ Once here, he placed my pan handle into a fire for a short while before pulling 
 
 Each time he struck the tool, I could feel a part of my pan handle changing shape.
 
-It wasn't an unwelcome feeling but it did feel very strange.
+It wasn't an unpleasant  feeling but it did feel very strange.
 
 ...
 
@@ -139,3 +139,5 @@ After her soft words, Dad drew closer to Mom to hold on to her.
 Before long, Mom and Dad returned me to the room where I would normally wake up once more.
 
 I didn’t know it at the time but the next time I wake up once more, it will be many years into the future.
+
+...
