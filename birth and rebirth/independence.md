@@ -1,6 +1,6 @@
 # **Independence**
 
-I was once again, sitting on a fire when I woke up this time.
+I was once again sitting on a fire when I woke up.
 
 However, this time, something was weird.
 
@@ -118,7 +118,7 @@ Maria giggled at the mini Maria's remarks.
 
 Even though this room felt familiar, I could tell it was different somehow.
 
-Maybe it's the way that stuff is located, maybe the color of the walls, maybe it's something else but the room felt different.
+Maybe it was the way that stuff was located, maybe the color of the walls, maybe it was something else but the room felt different.
 
 Last time, I woke up in a place without a room, and this time, I woke up in a room that just felt wrong.
 
