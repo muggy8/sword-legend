@@ -1,16 +1,16 @@
 # **Stillness**
 
-Time has changed, I don't know when, nor do I know why.
+Time had changed, I did not know when, nor did I know why.
 
-But time has changed and this is something I have to come to terms with.
+But time had changed and this was something I had to come to terms with.
 
-The only reason I know is because of how slowly things change around me.
+The only reason I knew was because of how things surrounding me had slowly changed.
 
 Each time I woke up in the past, the people around me would get bigger without fail.
 
-Yet now, each time I wake up, I can hardly tell if anything changed.
+Yet now, each time I woke up, I could hardly tell if anything had changed at all.
 
-Maria is still the same as she was.
+Maria was still the same as she was before.
 
 Johan still seemed the same.
 
@@ -18,7 +18,7 @@ Lucy was the one of the few who changed but even then, I could hardly tell the d
 
 Maybe she was a small bit bigger, maybe her proportions changed a bit, maybe the way she talked changed.
 
-Whatever it is, she has unmistakably changed.
+Whatever it is, she had unmistakably changed.
 
 Yet whatever the change is, there's no way I could tell exactly what that is.
 
@@ -26,9 +26,9 @@ All I know is that something about her changed and she became more Maria like si
 
 The only one who changed the most was the small being named 'Machala' who was crawling around previously.
 
-Last time she was crawling around on all fours but now, it looks like she was able to walk on two limbs like the rest of the members of the room.
+Last time she was crawling around on all fours but now, it looked like she was able to walk on two limbs like the rest of the members of the room.
 
-I could easily tell that she's much bigger now; though I can't really say by how much.
+I could easily tell that she was much bigger now; though I couldn't really say by how much.
 
 Today, like the many times in recent memory, I wasn't the only container with a Pan Handle on the table.
 
@@ -42,7 +42,7 @@ Machala one didn't talk much at all which I guess was nice.
 
 Lucy, in contrast, wouldn't stop talking.
 
-She was starting to feel like the annoying brat to me.
+She was starting to feel like the annoying brat to me
 
 But before she could start talking too much, she started eating.
 
@@ -54,17 +54,17 @@ Maria and Johan were left in the room and they chatted about stuff.
 
 The usual talk about everyday life, planning for things in the future, chores still left undone.
 
-It is through these talks that I've learned much about the daily life of Maria, Johan, Lucy and Machala.
+It is through these talks that I'd learned much about the daily life of Maria, Johan, Lucy and Machala.
 
-Johan spends his days in this place called The Workshop.
+Johan spent his days in this place called The Workshop.
 
 Maria spends her days at home taking care of Lucy and Machala.
 
 There was this thing called 'Money' that Johan and Maria tried to collect but it doesn't seem like they're very successful in doing that.
 
-Other than taking care of Lucy and Machala, Maria also helps take care of the others who live nearby.
+Other than taking care of Lucy and Machala, Maria also helped taking care of the others who live nearby.
 
-Names like Thomas, Holland, Wendy, and Gloria seem to come up frequently though to me, these names were nothing more than just names.
+Names like Thomas, Holland, Wendy, and Gloria seemed to come up frequently though to me, these names were nothing more than just names.
 
 Maria was the one with much more knowledge of what was happening than Johan.
 
@@ -76,15 +76,15 @@ It's days like today that were by far, the most common.
 
 Just Maria and Johan talking about the same things as the previous days.
 
-The scenery never changes anymore, the people hardly change anymore.
+The scenery never changed anymore, the people hardly change anymore.
 
-It's almost like time itself has stopped moving.
+It was almost like time itself had stopped moving.
 
-In one way, it was a scary feeling, like I'm trapped here forever.
+In one way, it was a scary feeling, like I was trapped here forever.
 
 But if I think about it another way, It was oddly comforting, I would always wake up to the same people surrounding me.
 
-Maria would always place me over the fire before continuing on with this cooking ritual she always performs.
+Maria would always place me over the fire before continuing on with this cooking ritual she always performed.
 
 Johan would always be there after the cooking ritual along with Lucy and Machala.
 
@@ -100,17 +100,17 @@ This, too, wasn't anything too abnormal.
 
 I would fall asleep before this happened on some days and on other days, I would be awake for long enough to see this happen.
 
-What happens now feels like a scramble to transform the room.
+What happened now felt like a scramble to transform the room.
 
 The table I was on was moved to the side and everything on the table was moved away.
 
-Maria would often wash me in the liquid filled hole before placing me into the fire again for a while.
+Maria would often submerse me in the shallow, liquid-filled hole before placing me into the fire again for a while.
 
 While I waited in the fire, the rest of the room's transformation continued.
 
 A soft looking sheet was placed onto the floor and covered a large portion of the room.
 
-The other smaller fires on sticks were put out causing the amount of light in this room to decrease significantly.
+The other smaller fires on sticks were put out causing the brightness of the room to drop significantly.
 
 Before long, Maria pulled me out of the fire pit and hung me onto the roof with the other containers.
 
