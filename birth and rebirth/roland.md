@@ -22,15 +22,15 @@ Beside me was another one.
 
 We looked alike in some ways but quite different in others.
 
-Johan was scoping stuff out of the other pan and into small containers in front of each of Maria, the new buky guy and Lily.
+Johan was scoping stuff out of the other pan and into small containers in front of each of Maria, the new buky guy and Lucy.
 
-Lily herself has gotten bigger and much better at speaking now.
+Lucy herself has gotten bigger and much better at speaking now.
 
-"I only want whatever's in Pandle" Lily pouted.
+"I only want whatever's in Pandle" Lucy pouted.
 
-"You know, it's not good to be picky with food, Lily" replied Johan.
+"You know, it's not good to be picky with food, Lucy" replied Johan.
 
-"Lily, can you be a good girl for mommy today please. If you do, I'll make you your favorite potato stew tomorrow." smiled Maria.
+"Lucy, can you be a good girl for mommy today please. If you do, I'll make you your favorite potato stew tomorrow." smiled Maria.
 
 "... Fine."
 
@@ -38,7 +38,7 @@ After Johan scooped something into the 4 smaller containers from the other pan, 
 
 After he was done, he sat back down.
 
-Lily was already eating her portion by the time Johan sat down.
+Lucy was already eating her portion by the time Johan sat down.
 
 "So what brings you here to our humble estate today, sir Roland" Maria asked once Johan had sat down.
 
