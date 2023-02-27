@@ -104,7 +104,7 @@ Johan didn't say much in response to Roland's reply.
 
 "Forgetfulness and Thought Protection for both of you."
 
-"Oh enchantments! I never thought I'd experience something like that." Maria said in excitement
+"Oh enchantments! I never thought I'd experience something like that." Maria said in excitement.
 
 "I think we don't actually have any say in this matter, correct?" Johan sighed.
 
@@ -124,6 +124,6 @@ With Roland's words, he took out a strange looking chunk of metal attached to so
 
 "Alright."
 
-"Now focus, focus as much as you can onto this pendulum. See its motion, feel its movement, ignore everything around you that's not the swinging pendulum..."
+"Now focus, focus as much as you can onto this pendulum. See its motion, feel its movement, ignore everything around you besides the swinging pendulum alone..."
 
 ...
