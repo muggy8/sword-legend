@@ -212,6 +212,26 @@ With that, I should be able to move around as much as I want now.
 
 I cant wait to explore everything there is to explore out there.
 
+Feeling this way while scanning around, I noticed some boxes that were located next to the window.
+
+without a second thought, I began the process of moving myself into one of the boxes.
+
+The boxes were all made of the same stuff the doors were made out of.
+
+Some seemed to be taller, some seemed to be wider.
+
+There was even one that looked round. but it was flat on top and probably was flat on the bottom too.
+
+In fact, these boxes reminded me of the only other time I had seen the clear endless expanse above the roof.
+
+It was clear blue just like this time instead of bright orange.
+
+But I couldn't say for certain if these boxes were the same boxes that were on the weird looking table with round legs.
+
+I took a close look at the closes box to examine if I could remember anything about it but then I realized that I had actually transferred myself into one of the boxes already.
+
+Upon realizing this, a well of excitement well up within me as I immediately began taking in my new surroundings.
+
 Yet despite this excitement, I felt incredibly tired, so incredibly tired.
 
 I felt my consciousness fading away.
