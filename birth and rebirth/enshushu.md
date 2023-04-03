@@ -52,7 +52,7 @@ Then He took a small bowl and scooped some liquid from where Maria kept the liqu
 
 A sharp fizzling sound erupted but soon enough, the fire was extinguished.
 
-This is where Maria or Machala would normally leave the fire pits in order to do something else but Andrew instead knelt down by the fire pit and formed a bow with his hands, 
+This is where Maria or Machala would normally leave the fire pits in order to do something else but Andrew instead knelt down by the fire pit and formed a bow with his hands,
 
 under the dim light of the fire in the hanging box, I could see Andrew silently whispering something.
 
@@ -62,7 +62,7 @@ Soon enough, Andrew stood up and joined the rest of the family in bed.
 
 This was a rather odd change.
 
-Something strange was definitely happening. 
+Something strange was definitely happening.
 
 Maria or Machala would often do this task and Andrew, like Johan and Lucy, would usually never partake in these home caring rituals.
 
@@ -74,7 +74,7 @@ The only reason for this is because this has been happening for quite a while.
 
 Which means, I must have been asleep for quite a while as well.
 
-I didn't like this feeling. 
+I didn't like this feeling.
 
 Something changed and I was completely unaware of it,
 
@@ -98,9 +98,9 @@ I had never seen what Lucy or Johan does at the workshop.
 
 I had never even been to the workshop.
 
-I don't even know what Andrew does all day long. 
+I don't even know what Andrew does all day long.
 
-Can I even claim to watch over the family when I don't even know what almost half of them are doing half of the time. 
+Can I even claim to watch over the family when I don't even know what almost half of them are doing half of the time.
 
 I was filled with a great sense of dissatisfaction as I came upon this realization.
 
@@ -108,7 +108,7 @@ Filled with this feeling, I watched as the family went to sleep beneath me and a
 
 I gazed at the motionless sleeping bodies of the family as I hung motionlessly from the roof with the other cooking containers beside me.
 
-'Greetings spirit of the pan.' echoed an unfamiliar voice. 
+'Greetings spirit of the pan.' echoed an unfamiliar voice.
 
 The voice startled me as I immediately started looking at my surroundings to find the source.
 
@@ -128,7 +128,7 @@ It was alarming.
 
 This was only the second time anyone talked to me and this time, it was coming from nowhere in particular, or maybe it was coming from everywhere.
 
-I was scared. 
+I was scared.
 
 I wasn't sure what to do.
 
@@ -172,9 +172,9 @@ I fixed my gaze intently on the cooking container beside me as instructed.
 
 I wasn't sure how long this would take or what would come next, but this was the only thing I could do right now.
 
-I had never talked to anyone before but it seems that Enshushu had figure out a way to talk to me. 
+I had never talked to anyone before but it seems that Enshushu had figure out a way to talk to me.
 
-Though I didn't really know where this will go, this whole event felt like something I shouldn't just toss aside. 
+Though I didn't really know where this will go, this whole event felt like something I shouldn't just toss aside.
 
 so all I could do now was to play along.
 
@@ -182,11 +182,11 @@ so all I could do now was to play along.
 
 Enshushu's words snapped me out of the thoughts.
 
-It was also those words that made me realize that I had transferred myself into the cooking container beside me. 
+It was also those words that made me realize that I had transferred myself into the cooking container beside me.
 
 When did this happen?
 
-I wasn't sure but I had realized something. 
+I wasn't sure but I had realized something.
 
 What I had been doing all this time with the experimenting and transferring around from object to object.
 
@@ -202,7 +202,7 @@ I did indeed know how to move.
 
 I just didn't know what it was called.
 
-I felt like an idiot for wasting this opportunity and I wanted to find out more. 
+I felt like an idiot for wasting this opportunity and I wanted to find out more.
 
 Yet no matter what I did, Enshushu didn't return.
 
@@ -211,3 +211,5 @@ I tried to look intently at the fire in the hanging box, but nothing happened.
 I continued trying to do everything I could with the fire but nothing happened still.
 
 By the time light was returning to the outside world, I had finally came to terms with the fact that Enshushu left somehow and the only thing I could do now was wait.
+
+...
